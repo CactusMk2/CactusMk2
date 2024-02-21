@@ -1,1 +1,1 @@
-Network engineering student and enthusiast
+Network engineering student
